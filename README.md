@@ -26,7 +26,6 @@ Many of these steps happen within miliseconds of each other but the order matter
 6. Tilt your shoulders to create an angle
 7. Put your hands together (palm on top of palm, thumbs together tilted down)
 8. Have ball hit your arms right in the middle of your forearm 
-![fall](sweet spot.jpg)
 9. Hold that angle towards your target
 
 And of course practice makes perfect so keep redoing these steps until you get good at forearm passing.
